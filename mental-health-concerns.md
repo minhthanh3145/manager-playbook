@@ -10,7 +10,7 @@
 
 **Maintain confidentiality and respect their privacy**: When asked for a reference, remember that it's not your place to disclose someone's personal health information to others. Instead, focus on concrete, observable behaviors and performance in the workplace​​.
 
-**Encourage them to seek professional help**: If you have a good relationship with the employee and feel it's appropriate, you might suggest that they speak to a mental health professional. You could also guide them towards resources provided by your organization, such as an Employee Assistance Program (EAP)​16​.
+**Encourage them to seek professional help**: If you have a good relationship with the employee and feel it's appropriate, you might suggest that they speak to a mental health professional. You could also guide them towards resources provided by your organization, such as an Employee Assistance Program (EAP)​.
 
 **Consult with HR or higher management**: If you have serious concerns about an employee's mental health—especially if it's impacting their work or they seem to be at risk—reach out to HR or a higher manager. They can guide you on the next steps and how to handle the situation, which may include reaching out to emergency contacts or directing the employee towards professional help​​.
 
