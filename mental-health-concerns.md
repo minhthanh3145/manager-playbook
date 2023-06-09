@@ -1,5 +1,7 @@
 # Concerns about a staff member's mental health
 
+[Summarized from Reddit](https://www.reddit.com/r/managers/comments/13xqft4/concerned_about_a_staff_members_mental_health/)
+
 ## When to use
 
 **If you're contacted by another organization for a reference about a former employee and you have concerns about their mental health**: This can be a challenging situation because you want to provide an honest assessment while also respecting the individual's privacy. Keep in mind that the potential employer deserves an honest assessment but remember to be respectful and cautious about revealing personal health information​.

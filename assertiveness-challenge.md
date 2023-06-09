@@ -1,5 +1,7 @@
 # Navigating Assertiveness Challenges with Introverted or Conflict-Avoidant Employees
 
+[Summarized from Reddit](https://www.reddit.com/r/managers/comments/143gd30/has_anyone_successfully_made_an_employee_more/)
+
 ## When to Use
 This playbook page should be used when a manager encounters an employee who is struggling with assertiveness, especially in environments where confrontation and argumentation may be necessary. This is particularly relevant for employees who are introverted or who tend to avoid conflict. The aim is to encourage the employee to stand up for themselves in a way that aligns with their natural disposition, rather than trying to fundamentally change their personality.
 

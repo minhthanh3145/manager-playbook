@@ -1,5 +1,7 @@
 # Handling Reference Requests for Underperforming Employees
 
+[Summarized from Reddit](https://www.reddit.com/r/managers/comments/13u2cht/incompetent_employee_asking_to_put_me_as/)
+
 ## When to use
 Use this guide when you receive a reference request from an underperforming or incompetent employee who is seeking a new job. This situation can be challenging as it requires balancing honesty about the employee's performance with the professional courtesy of providing a reference.
 
